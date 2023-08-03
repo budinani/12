@@ -1,1 +1,1 @@
-# 12 tkj 2 lunuk puppy
+# 12 tkj 2 linux puppy
